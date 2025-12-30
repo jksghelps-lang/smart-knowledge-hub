@@ -6,6 +6,7 @@ Welcome to the **Smart Knowledge Hub**, a public resource page that provides eas
 
 This hub is designed for readers from the **USA, UK, Canada, and Australia** who want reliable, well-researched information in one place.
 
+https://resultssr.com/travel-insurance-for-international-visitors/
 ---
 
 ## 🤖 AI Tools & Business Guides
